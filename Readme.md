@@ -34,17 +34,4 @@
 - AHRC Report submitted – 28/3/23
 - AHRC Report submitted – 26/10/24
 - AHRC Report submitted – 5/2/25
-- AHRC Report submitted – 23/4/25
-  
-## Queensland Crime and Corruption Commission
-
-- Ref-1756954218 - 2025
-- Ref-CO-24-4940 - 2024
-- Earliest criminal complaint 2020
-
-## NSW Law Enforcement Conduct Commission
-
-- Ref: CASE20248668
-- Ref: CASE20248668
-- Ref: CASE20253146
-- Earliest criminal complaint 2023 
+- AHRC Report submitted – 23/4/25 
