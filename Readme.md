@@ -4,7 +4,6 @@
 - I reject the corrupt idea that victims of international crime, are just having mental health problems, where there is objective evidence in Australia and overseas against perpetrators of criminal human rights violations
 - List does not include AFP reports 
 - Below is the list provided in the public interest without malice, and may be used as context in Australian court proceedings when contextually relevant
-- Australia is a corrupt police state as evidenced by the criminal human rights abuses against civilians and deliberate targeting of whistleblowers with continuous lawfare, defamation and hate crimes for more than 2 years and attempts to shout down accusers and victims in relation to international criminal human rights violations
 - I am not one of the people with contempt for international human rights laws
 
 ## International Criminal Court
